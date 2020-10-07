@@ -1,4 +1,4 @@
-#### Steps
+#### STEPS
 #### PREPARING MIXTURE
 *Heat butter (1 tbsp) in a large pot over medium flame until melted.
 *Saute mushrooms for 3 to 4 minutes.
